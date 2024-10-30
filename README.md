@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development and app development 
 - 🌱 I’m currently learning HTML CSS part-time
 - 💞️ I’m looking to collaborate on some projects
-- 📫 How to reach me Instagram @mokua.ig.ke
+- 📫 How to reach me Instagram @mokua.gram
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Die with memories not dreams
 
